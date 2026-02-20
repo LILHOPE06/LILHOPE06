@@ -16,6 +16,6 @@
 
 ## Fun Fact
 
-- 📖 Into manga - Record of Ragnarok is a fav and Buddha is my fav character!.
+- 📖 Fav character- Buddha from ROR and Viktor from Arcane.
 - 🐈 I really love cats.
 - 🍵 Not a coffee person but I really enjoy with tea.
